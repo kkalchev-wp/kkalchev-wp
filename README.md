@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning spanish
 - 💞️ I’m looking to collaborate on AI startups
 - 📫 How to reach me ... slack me
-- 😄 Pronouns: They change very frequently
+- 😄 Pronouns: yaba/dabadoo
 - ⚡ Fun fact: The Hercules–Corona Borealis Great Wall is the largest known structure in the observable universe, measuring approximately 10 billion light-years in length. Bannana for scale:
 
 ```//\
